@@ -1,2 +1,2 @@
-# sautigang.github.io
+# Sauti Gang
 // sound engineering to the next level.
